@@ -1,6 +1,6 @@
-# Ceryna Eulyss Magtoto
+# Ceryna Eulyss P. Magtoto
 Contributer 1 of Group 1 - 9 Arayat.
-# Keisha Abbiel Ramos
+# Keisha Abbiel B. Ramos
 Contributer 2
-# Cloud Ramirez
+# Cloud S. Ramirez
 Contributer 3
